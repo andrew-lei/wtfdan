@@ -3,3 +3,5 @@
 Because Dan keeps shilling for $AMD.
 
 Disclaimer: I have a small position in AMD.
+
+<http://wtfdan.xyz>
